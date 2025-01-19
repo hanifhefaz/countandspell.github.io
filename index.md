@@ -1,5 +1,3 @@
-
-
 ## Privacy Policy for Count and Spell
 
 **Effective Date:** 2025/01/20
